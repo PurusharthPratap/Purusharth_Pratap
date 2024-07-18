@@ -1,2 +1,1 @@
-# Hi there 👋
-Purusharth Pratap
+# Hi there 👋 My name is Purusharth Pratap
