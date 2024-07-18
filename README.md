@@ -1,1 +1,2 @@
-# Purusharth_Pratap
+# Hi there 👋
+Purusharth Pratap
